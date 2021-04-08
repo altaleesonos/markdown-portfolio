@@ -1,0 +1,4 @@
+- raindrop on roses
+- whiskers on kitten
+- bright copper kettles
+  - and warm woolen mittens
